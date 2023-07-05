@@ -1,0 +1,1 @@
+# Nadal-Medical-Elementor-WooCommerce-Theme
